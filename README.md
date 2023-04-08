@@ -26,4 +26,13 @@ Use for purposes other than personal use is prohibited
 Model copyright belongs to: Bilibili up owner Hana  
 Bilibili Personal Space: [https://space.bilibili.com/630077416](https://space.bilibili.com/630077416)  
 ## 预览 預覽 Preview  
-![](哈娜hanna-我的世界-我居然将我画的娘化轻灵做成了桌宠.gif)
+![](哈娜hanna-我的世界-我居然将我画的娘化轻灵做成了桌宠.gif)  
+## 下载 下載 Download  
+### 方法1 Method 1  
+1.点击右侧的 Releases 之后展开 Assets 点击下方的 QL.zip 即可下载  
+1.點擊右側的 Releases 之後展開 Assets 點擊下方的 QL.zip 即可下載
+1.Click Releases on the right and expand Assets, click QL.zip below to download  
+### 方法2 Method 2  
+2.点击绿色的 code 在下拉框中找到 Download ZIP 也可下载  
+2.點擊綠色的 code 在下拉框中找到 Download ZIP 也可下載  
+2.Click the green code to find Download ZIP in the drop-down box and also download  
