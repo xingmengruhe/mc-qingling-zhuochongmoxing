@@ -1,4 +1,8 @@
 # mc-qingling-zhuochong  
+喜欢的话可以给个 star 吗
+喜歡的話可以給個 star 嗎
+Can you give a star if you like it
+## 提示 prompt  
 繁體中文直接由簡體中文轉換得來，部分地方語序不對請見諒  
 The English translation is from Microsoft Bing  
 ## 版权信息  
