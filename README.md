@@ -26,4 +26,4 @@ Use for purposes other than personal use is prohibited
 Model copyright belongs to: Bilibili up owner Hana  
 Bilibili Personal Space: [https://space.bilibili.com/630077416](https://space.bilibili.com/630077416)  
 ## 预览 預覽 Preview  
-![哈娜hanna-我的世界-我居然将我画的娘化轻灵做成了桌宠.gif](https://pan.blmcpia.com/api/v3/file/source/2050/%E5%93%88%E5%A8%9Channa-%E6%88%91%E7%9A%84%E4%B8%96%E7%95%8C-%E6%88%91%E5%B1%85%E7%84%B6%E5%B0%86%E6%88%91%E7%94%BB%E7%9A%84%E5%A8%98%E5%8C%96%E8%BD%BB%E7%81%B5%E5%81%9A%E6%88%90%E4%BA%86%E6%A1%8C%E5%AE%A0.gif?sign=2GspVuyv4ftjvweMxnq6W1CWvXcPok4f8RxXPgX28IU%3D%3A0)
+![](https://pan.blmcpia.com/api/v3/file/source/2050/哈娜hanna-我的世界-我居然将我画的娘化轻灵做成了桌宠.gif?sign=2GspVuyv4ftjvweMxnq6W1CWvXcPok4f8RxXPgX28IU%3D%3A0)
