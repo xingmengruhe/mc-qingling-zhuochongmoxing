@@ -25,4 +25,3 @@ Do not misappropriate model accessories to other models
 Use for purposes other than personal use is prohibited  
 Model copyright belongs to: Bilibili up owner Hana  
 Bilibili Personal Space: [https://space.bilibili.com/630077416](https://space.bilibili.com/630077416)  
-<iframe src="https://player.bilibili.com/player.html?aid=297212266&bvid=BV1oF41147MH&cid=547749609&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"></iframe>  
